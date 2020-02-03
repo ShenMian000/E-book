@@ -4,7 +4,8 @@
 - 资料仅供学习, 请勿用于非法用途.  
 
 **地址**  
-- [**腾讯微云**](https://share.weiyun.com/5VJ3phB)
+- [**腾讯微云**](https://share.weiyun.com/5VJ3phB)  
+- [**百度网盘**](https://pan.baidu.com/s/1w2K8A4Bh0z8WIw5fPaqlyw)  
 
 **目录**  
 目录数据更新日期: 191207  
